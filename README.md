@@ -1,2 +1,2 @@
-# SS
-ThangNH21
+# Nguyễn Hữu Thăng
+ThangNH
