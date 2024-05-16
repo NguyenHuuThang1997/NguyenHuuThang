@@ -1,2 +1,0 @@
-# Nguyễn Hữu Thăng
-ThangNH
